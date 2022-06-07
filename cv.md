@@ -1,4 +1,5 @@
 # Кагальницкая Дарья Сергеевна
+![image](https://www.opensuse-forum.de/wcf/images/avatars/70/5676-709ef4c50c08bb17a2126c77e4c35b2af3052461.png)
 
 ## Обо мне
 * _Возраст - **23 года**_
